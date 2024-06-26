@@ -1,0 +1,6 @@
+![image](https://github.com/RabadeJanhvi-45/Indeed_Clone/assets/91745609/d17d72b7-e21f-45d0-9593-fbf321409bc3)
+![image](https://github.com/RabadeJanhvi-45/Indeed_Clone/assets/91745609/dbbf4f49-543d-4ca3-a353-c7af30884f44)
+![image](https://github.com/RabadeJanhvi-45/Indeed_Clone/assets/91745609/9db6d1fb-d5df-4b78-b4f3-0b0b68dd4953)
+![image](https://github.com/RabadeJanhvi-45/Indeed_Clone/assets/91745609/d2462efa-91ab-4448-a791-89d83ab995aa)
+![image](https://github.com/RabadeJanhvi-45/Indeed_Clone/assets/91745609/ace9ec6a-2fa8-492b-bccc-401b346765aa)
+![image](https://github.com/RabadeJanhvi-45/Indeed_Clone/assets/91745609/b6d806e0-9196-4f77-9f4b-9dde8a9e9435)
